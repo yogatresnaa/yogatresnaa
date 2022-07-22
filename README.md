@@ -1,6 +1,6 @@
 # Halo sahabat semua!
 
-perkenalkan nama saya **M.Puji Tresna Prayoga**
+perkenalkan nama saya **Puji Tresna Prayoga**
 
 saat ini saya seorang mahasiswa semester tujuh dari Unisversitas Pamulang\
 jurusan Teknik Informatika
